@@ -1,5 +1,4 @@
 
-![Untitled473_20240324195001 2](https://github.com/bordrline/hai/assets/155702764/9673f07b-135a-4f16-afa7-caf4f5dfa207)
 
 [bundlrs](https://bundlrs.cc/jumping)     
 
